@@ -1,0 +1,2 @@
+Sinceramente, nunca havia usado isso daqui direito antes e olha só, ainda ta confuso mas como tudo que você utiliza pela primeira vez, não é exatamente facil
+Alguns diriam que é mamão com açucar mas por gentileza, não menosprezar a curva de aprendizagem de cada ser bele? 
